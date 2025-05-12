@@ -1,2 +1,1 @@
-# Dino-update
-game dino gitulah
+GUABUT GUA
